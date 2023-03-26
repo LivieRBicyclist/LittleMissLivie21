@@ -1,6 +1,6 @@
-- 👋 Hi, I’m Livie Rodriguez.
-- 👀 I’m interested in Microsoft Windows, Frank Jigsaw Puzzles, taking pictures, and making new friends.
-- 🌱 I’m currently learning how to get over my severe anxiety.
+- 👋 Hi, I’m Livie Rodriguez The Bicycle Lover.
+- 👀 I’m interested in Microsoft Windows, Frank Jigsaw Puzzles, taking pictures, and most importantly, riding bicycles.
+- 🌱 I’m currently learning Virtual Machinery.
 - 📫 How to reach me? Check out my website: https://livie212007.wixsite.com/livie-rodriguez
 
 <!---
